@@ -29,3 +29,17 @@
 🔘 . 𝙤𝙛𝙛𝙡𝙞𝙣𝙚/𝘪𝘯𝘷𝘪𝘴𝘪𝘣𝘭𝘦(𝘥𝘯𝘪𝘶𝘧)
 
 ───-★-───
+
+DISLIKES
+
+★ ⭐️ . KPOP 
+
+★ ⭐️ . Helluva Boss / Hazbin Hotel
+
+★ ⭐️ . Roleplay
+
+
+   ╰┈➤ PLEASE DONT come up to me in roleplay, just ask me if im up to rp instead!
+
+★ ⭐️ .
+
