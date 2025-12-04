@@ -30,16 +30,4 @@
 
 ───-★-───
 
-DISLIKES
-
-★ ⭐️ . KPOP 
-
-★ ⭐️ . Helluva Boss / Hazbin Hotel
-
-★ ⭐️ . Roleplay
-
-
-   ╰┈➤ PLEASE DONT come up to me in roleplay, just ask me if im up to rp instead!
-
-★ ⭐️ .
 
